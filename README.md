@@ -1,4 +1,4 @@
 20223133 jeonyoonju
-Kookmin Univ. SW
+Kookmin Univ. SW dept.
 
 
